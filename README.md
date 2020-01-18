@@ -1,2 +1,0 @@
-# PukkahF.github.io
-PukkahFashion
